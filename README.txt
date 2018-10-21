@@ -1,0 +1,1 @@
+Script for making random colour patterns. Ideas for living room wall decoration.
